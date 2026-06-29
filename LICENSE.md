@@ -1,4 +1,4 @@
-#  
+#  Experience kaizen like never before with smart Scripts for kaizen, the #1 Script. Includes esp and auto-upgrade for unbeatable performance.
 
 
 
